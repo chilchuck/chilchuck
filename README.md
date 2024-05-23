@@ -1,4 +1,4 @@
-# hi im clue or @chilchuck im an adult
+# hi im @chilchuck im an adult
 
 ![alt text](https://media1.tenor.com/m/h9_dP_4EpNQAAAAC/chilchuck-freak-out.gif)
 
