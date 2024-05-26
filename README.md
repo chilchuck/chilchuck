@@ -1,4 +1,6 @@
-# hi im @chilchuck im an adult
+# hi im @chilchuck im an adult 
+
+draw on my strawpage :3
 
 ![alt text](https://media1.tenor.com/m/h9_dP_4EpNQAAAAC/chilchuck-freak-out.gif)
 
