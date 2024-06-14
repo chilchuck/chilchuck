@@ -1,4 +1,4 @@
-# hi im @chilchuck im an adult 
+# hi im chime! im an adult 
 
 draw on my strawpage :3
 
